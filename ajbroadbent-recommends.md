@@ -4,6 +4,7 @@
 - Balboa Park
 - San Diego Zoo
 - Moonlight beach
+- Gas Lamp District
 
 ### Places to eat
 - Rico's Taco Shop
