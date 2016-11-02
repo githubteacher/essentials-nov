@@ -10,3 +10,5 @@
 - The Pit (Great NC style BBQ)
 - Aviator's (A local brewery and smokehouse)
 - The Fainting Goat Tavern (Has cool foodtrucks every night -- and beer)
+
+- Second Empire Restaurant and Tavern (Vin's recommendation)
